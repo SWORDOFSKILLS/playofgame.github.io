@@ -1,4 +1,7 @@
 # Play Of Game
+
+![POG]()
+
 Play Of Game Discord server: [POG](https://discord.gg/G42EZKSmD3).
 
 My Youtube Link: [SWORDOFSKILLS_YT](https://www.youtube.com/channel/UCxaMqYrRQLJEZ7fcAJDYxAA)
@@ -20,7 +23,7 @@ It's called AOP (Academy of POG). AOP Leader are Bropro, -_-! & Wintergreen
 
 **Only those who are confident to rise above all, with near unparalleled talent and ability are accepted in POG & AOP** 
 
-![POG](https://raw.githubusercontent.com/SWORDOFSKILLS/swordofskills.github.io/main/20.jpg)
+![POG squad member](https://raw.githubusercontent.com/SWORDOFSKILLS/swordofskills.github.io/main/20.jpg)
 
 # RECRUITMENT:
 ## Join POG NOW!!!
