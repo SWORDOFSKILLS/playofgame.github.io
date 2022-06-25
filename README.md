@@ -1,6 +1,6 @@
 # Play Of Game
 
-![POG]()
+![POG](https://raw.githubusercontent.com/SWORDOFSKILLS/swordofskills.github.io/main/POG_Logo.png)
 
 Play Of Game Discord server: [POG](https://discord.gg/G42EZKSmD3).
 
