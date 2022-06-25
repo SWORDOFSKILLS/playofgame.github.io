@@ -2,7 +2,7 @@
 
 ![POG](https://raw.githubusercontent.com/SWORDOFSKILLS/swordofskills.github.io/main/POG_Logo.png)
 
-Play Of Game Discord server: [POG](https://discord.gg/G42EZKSmD3).
+Play Of Game Discord server: [POG]().
 
 My Youtube Link: [SWORDOFSKILLS_YT](https://www.youtube.com/channel/UCxaMqYrRQLJEZ7fcAJDYxAA)
 
