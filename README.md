@@ -8,12 +8,6 @@ My Youtube Link: [SWORDOFSKILLS_YT](https://www.youtube.com/channel/UCxaMqYrRQLJ
 
 DeViL Youtube Link: [[POG] DeViL War brokers](https://www.youtube.com/channel/UCk5Ec29oOy2po6lKqgCmLQg)
 
-Story about swordofskills failed to form a team and start joining IMT:
-
-## The truth that why I can’t create squad :
-
-I don’t have friends to help me create a new squad. So I created those fake accounts to support my squad. However, they need me to verify those accounts with telephone no which I don’t have. Finally I gave up and joined [IMT]
-
 ## Story about POG
 
 Introducing to you....... Play Of Game (POG)! A Discord server made to represent the POG squad of War Brokers game, POG is a squad with 18 members and growing. The founder of POG are DeViL & SWORDOFSKILLS. 
